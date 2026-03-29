@@ -101,9 +101,9 @@ Last updated: March 29, 2026
 
 ---
 
-## DEEP CUTS — 2012+ (English, extreme, sexual, torture, gore, fast)
+## DEEP CUTS (English, extreme, sexual, torture, gore, fast — Ghostland lane)
 
-*All verified NOT in Letterboxd watched history (4,575 films). All English. Ghostland lane.*
+*All verified NOT in Letterboxd watched history (4,575 films). All English. No rape-revenge.*
 
 ### #1 — [Piercing](https://dopebox.to/search/piercing%202018) (2018)
 - **Vibe:** S&M / cat-and-mouse / erotic horror
@@ -115,70 +115,56 @@ Last updated: March 29, 2026
 - **Synopsis:** Elijah Wood scalps women and dresses mannequins. Entire film shot through his eyes. Alexandre Aja produced. Sexual obsession drives every kill. Polished, relentless. 89 min.
 - **Demented factor:** █████████░ 9/10
 
-### #3 — [Julia](https://dopebox.to/search/julia%202014) (2014)
-- **Vibe:** Rape-revenge / underground torture
-- **Synopsis:** Gang-rape survivor joins a secret group that trains women to hunt and torture their attackers. Goes way further than you expect. Extreme, sexual, brutal revenge. 95 min.
-- **Demented factor:** █████████░ 9/10
-
-### #4 — [68 Kill](https://dopebox.to/search/68%20kill) (2017)
-- **Vibe:** Crime horror / sexual chaos / ultraviolent
-- **Synopsis:** Pushover boyfriend helps his psycho girlfriend rob her sugar daddy. Spirals into bloody sexual chaos involving multiple dangerous women. "Shock and speed." FrightFest premiere. 93 min.
-- **Demented factor:** █████████░ 9/10
-
-### #5 — [Nurse 3D](https://dopebox.to/search/nurse%203d) (2013)
+### #3 — [Nurse 3D](https://dopebox.to/search/nurse%203d) (2013)
 - **Vibe:** Erotic slasher / serial killer
 - **Synopsis:** Paz de la Huerta as a nurse who seduces and murders unfaithful men. Pure sleaze — nudity, gore, sex, kills with reckless abandon. Fast 85 min. Unapologetic.
 - **Demented factor:** ████████░░ 8/10
 
-### #6 — [I Spit on Your Grave 2](https://dopebox.to/search/i%20spit%20on%20your%20grave%202) (2013)
-- **Vibe:** Extreme rape-revenge / torture
-- **Synopsis:** Model lured to a photo shoot, kidnapped, trafficked to Eastern Europe. Extended torture. Then extended revenge. More extreme than the remake. 106 min.
-- **Demented factor:** █████████░ 9/10
-
-### #7 — [I Spit on Your Grave 3](https://dopebox.to/search/i%20spit%20on%20your%20grave%203) (2015)
-- **Vibe:** Vigilante revenge / torture
-- **Synopsis:** Survivor from the first film now hunts predators. Serial revenge killings with creative torture methods. Faster-paced than the second — less assault, more payback. 92 min.
-- **Demented factor:** ████████░░ 8/10
-
-### #8 — [Rabid](https://dopebox.to/search/rabid%202019) (2019)
+### #4 — [Rabid](https://dopebox.to/search/rabid%202019) (2019)
 - **Vibe:** Body horror / sexual transformation
 - **Synopsis:** Soska Sisters remake of Cronenberg. Woman gets experimental surgery, develops an insatiable hunger that spreads through sexual contact. Grotesque, gory, thematically layered. 107 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #9 — [Daniel Isn't Real](https://dopebox.to/search/daniel%20isnt%20real) (2019)
-- **Vibe:** Psychological horror / body horror / sexual violence
-- **Synopsis:** College student's imaginary friend returns — but he's a manipulative entity pushing toward sexual violence and Hellraiser-level body horror. Wild last act. 96 min.
+### #5 — [Bite](https://dopebox.to/search/bite%202015) (2015)
+- **Vibe:** Body horror / sexual trigger
+- **Synopsis:** Bachelorette party hookup in Costa Rica. She gets bitten by something in the water. Back home her body starts transforming — eggs, slime, skin peeling, teeth falling out. Sex starts the nightmare. Canadian, English. 90 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #10 — [Swallowed](https://dopebox.to/search/swallowed) (2022)
+### #6 — [Daniel Isn't Real](https://dopebox.to/search/daniel%20isnt%20real) (2019)
+- **Vibe:** Psychological horror / body horror / sexual manipulation
+- **Synopsis:** College student's imaginary friend returns — manipulative entity pushing toward sexual depravity and Hellraiser-level body horror. Wild last act. 96 min.
+- **Demented factor:** ████████░░ 8/10
+
+### #7 — [Proxy](https://dopebox.to/search/proxy%202013) (2013)
+- **Vibe:** Extreme thriller / sexual manipulation / twists
+- **Synopsis:** Woman attacked while pregnant. What follows is a chain of sexual manipulation, obsession, and escalating violence between multiple unhinged people. Wild twists reframe everything. 120 min.
+- **Demented factor:** ████████░░ 8/10
+
+### #8 — [Bloodline](https://dopebox.to/search/bloodline%202018) (2018)
+- **Vibe:** Serial killer / family horror / sexual power
+- **Synopsis:** Seann William Scott as a social worker and new father who murders people he deems threats. Cold, calculated kills with sexual dominance undertones. Slow-burning menace but erupts into violence. 97 min.
+- **Demented factor:** ███████░░░ 7/10
+
+### #9 — [Swallowed](https://dopebox.to/search/swallowed) (2022)
 - **Vibe:** Body horror / captivity / sexual undertones
 - **Synopsis:** Two friends' last night together — drug smuggling goes wrong with live bugs inside humans. Mark Patton (Elm Street 2) plays the psycho. Progressively unbearable. 96 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #11 — [Julia X](https://dopebox.to/search/julia%20x) (2011)
-- **Vibe:** Serial killer / sexual cat-and-mouse
-- **Synopsis:** Online date turns into abduction — but the victim fights back harder than expected. Sexual tension, torture, power reversals. Kevin Sorbo stars. Nasty. 92 min.
+### #10 — [Trash Fire](https://dopebox.to/search/trash%20fire%202016) (2016)
+- **Vibe:** Dark horror / family secrets / extreme finale
+- **Synopsis:** Dysfunctional couple visits his estranged grandmother. Sexual tension, toxic relationships, then the finale goes somewhere genuinely shocking and traumatic. You won't see it coming. 90 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #12 — [Captivity](https://dopebox.to/search/captivity%202007) (2007)
-- **Vibe:** Torture / captivity / sexual psychological games
-- **Synopsis:** Top model drugged and imprisoned in a basement. Forced to endure escalating psychological and physical torture. Elisha Cuthbert. Roland Joffé directed. Sexual mind games + gore. 85 min.
-- **Demented factor:** ████████░░ 8/10
-
-### #13 — [Avenged](https://dopebox.to/search/avenged%202013) (2013)
-- **Vibe:** Rape-revenge / supernatural vengeance
-- **Synopsis:** Deaf woman attacked by rednecks, left for dead. Resurrected by a Native American spirit, goes on a brutal killing spree. Fast, gory, extreme kills. 95 min.
-- **Demented factor:** ████████░░ 8/10
-
-### #14 — [An American Crime](https://dopebox.to/search/an%20american%20crime) (2007)
-- **Vibe:** True crime / captivity / torture
-- **Synopsis:** Based on the Sylvia Likens case. Teenage girl left with a caretaker who orchestrates her prolonged torture with neighborhood kids. Ellen Page, Catherine Keener. Devastating. High production. 98 min.
-- **Demented factor:** █████████░ 9/10
-
-### #15 — [Sorority Row](https://dopebox.to/search/sorority%20row) (2009)
-- **Vibe:** Slasher / sexy horror
-- **Synopsis:** Sorority prank goes wrong, someone dies, they cover it up. Killer starts picking them off. Gory kills, sexual tension, fast-paced. Polished studio horror. 101 min.
+### #11 — [Blood Punch](https://dopebox.to/search/blood%20punch) (2014)
+- **Vibe:** Time loop horror / love triangle / violent
+- **Synopsis:** Meth cook, femme fatale, and her psycho boyfriend trapped in a Groundhog Day murder loop. Sex, violence, betrayal on repeat — escalating each cycle. 105 min.
 - **Demented factor:** ███████░░░ 7/10
+
+### #12 — [Carnage Park](https://dopebox.to/search/carnage%20park) (2016)
+- **Vibe:** Desert survival / sniper hunting humans
+- **Synopsis:** Botched kidnapping dumps a woman in a remote desert kill zone run by a deranged sniper. Lean, mean, 70s grindhouse energy. Fast. 80 min.
+- **Demented factor:** ███████░░░ 7/10
+
 
 
 ---
