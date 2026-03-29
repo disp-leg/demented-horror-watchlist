@@ -101,83 +101,83 @@ Last updated: March 29, 2026
 
 ---
 
-## DEEP CUTS — 2012+ (English, fast, demented — ranked by recommendation)
+## DEEP CUTS — 2012+ (English, extreme, sexual, torture, gore, fast)
 
-*All verified NOT in Letterboxd watched history (4,575 films). All English. All fast.*
+*All verified NOT in Letterboxd watched history (4,575 films). All English. Ghostland lane.*
 
-### #1 — [Mayhem](https://dopebox.to/search/mayhem%202017) (2017)
-- **Vibe:** Office rampage / ultra-violent dark comedy
-- **Synopsis:** Steven Yeun + Samara Weaving. Virus removes all inhibitions in an office building — corporate drones go full kill mode. Breakneck speed, ultra-stylish. "Crank meets Office Space." Nonstop from minute one.
+### #1 — [Piercing](https://dopebox.to/search/piercing%202018) (2018)
+- **Vibe:** S&M / cat-and-mouse / erotic horror
+- **Synopsis:** Man plans to murder a call girl in a hotel. She's into way worse shit. Sex and violence completely intertwined. Stylish — split screens, retro score. Nicolas Pesce (Eyes of My Mother). 81 min.
 - **Demented factor:** █████████░ 9/10
 
-### #2 — [No One Lives](https://dopebox.to/search/no%20one%20lives) (2012)
-- **Vibe:** Serial killer vs criminals
-- **Synopsis:** Gang of thieves kidnaps the wrong couple. Luke Evans is the most dangerous man alive. Perfect pacing, inventive gory kills, flips predator/prey. Ryuhei Kitamura directed. 86 min.
+### #2 — [Maniac](https://dopebox.to/search/maniac%202012) (2012)
+- **Vibe:** POV serial killer / sexual obsession
+- **Synopsis:** Elijah Wood scalps women and dresses mannequins. Entire film shot through his eyes. Alexandre Aja produced. Sexual obsession drives every kill. Polished, relentless. 89 min.
 - **Demented factor:** █████████░ 9/10
 
-### #3 — [The Furies](https://dopebox.to/search/the%20furies%202019) (2019)
-- **Vibe:** Slasher death game / kidnapping
-- **Synopsis:** Women kidnapped and dumped in the woods as prey for masked killers. Each woman "paired" with a killer. Brisk, lean, fantastic practical gore FX. Australian, English. Shudder.
+### #3 — [Julia](https://dopebox.to/search/julia%202014) (2014)
+- **Vibe:** Rape-revenge / underground torture
+- **Synopsis:** Gang-rape survivor joins a secret group that trains women to hunt and torture their attackers. Goes way further than you expect. Extreme, sexual, brutal revenge. 95 min.
 - **Demented factor:** █████████░ 9/10
 
 ### #4 — [68 Kill](https://dopebox.to/search/68%20kill) (2017)
-- **Vibe:** Crime horror / dark comedy / ultraviolent
-- **Synopsis:** Pushover boyfriend helps his psycho girlfriend rob her sugar daddy. Everything spirals into bloody chaos involving multiple dangerous women. "Shock and speed" — FrightFest premiere. 93 min.
+- **Vibe:** Crime horror / sexual chaos / ultraviolent
+- **Synopsis:** Pushover boyfriend helps his psycho girlfriend rob her sugar daddy. Spirals into bloody sexual chaos involving multiple dangerous women. "Shock and speed." FrightFest premiere. 93 min.
+- **Demented factor:** █████████░ 9/10
+
+### #5 — [Nurse 3D](https://dopebox.to/search/nurse%203d) (2013)
+- **Vibe:** Erotic slasher / serial killer
+- **Synopsis:** Paz de la Huerta as a nurse who seduces and murders unfaithful men. Pure sleaze — nudity, gore, sex, kills with reckless abandon. Fast 85 min. Unapologetic.
 - **Demented factor:** ████████░░ 8/10
 
-### #5 — [Pledge](https://dopebox.to/search/pledge%202018) (2018)
-- **Vibe:** Fraternity hazing / captivity / torture
-- **Synopsis:** Three nerds pledging an elite frat discover it's actually a sadistic cult. "Animal House meets Hostel." 77 min — zero fat. Great twist. Better than it has any right to be.
+### #6 — [I Spit on Your Grave 2](https://dopebox.to/search/i%20spit%20on%20your%20grave%202) (2013)
+- **Vibe:** Extreme rape-revenge / torture
+- **Synopsis:** Model lured to a photo shoot, kidnapped, trafficked to Eastern Europe. Extended torture. Then extended revenge. More extreme than the remake. 106 min.
+- **Demented factor:** █████████░ 9/10
+
+### #7 — [I Spit on Your Grave 3](https://dopebox.to/search/i%20spit%20on%20your%20grave%203) (2015)
+- **Vibe:** Vigilante revenge / torture
+- **Synopsis:** Survivor from the first film now hunts predators. Serial revenge killings with creative torture methods. Faster-paced than the second — less assault, more payback. 92 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #6 — [Feedback](https://dopebox.to/search/feedback%202019) (2019)
-- **Vibe:** Captivity / radio station siege
-- **Synopsis:** Eddie Marsan as a shock jock taken hostage live on air by masked men forcing him to confess dark secrets. Single-location tension dialed to 11. FrightFest standout. English. 97 min.
+### #8 — [Rabid](https://dopebox.to/search/rabid%202019) (2019)
+- **Vibe:** Body horror / sexual transformation
+- **Synopsis:** Soska Sisters remake of Cronenberg. Woman gets experimental surgery, develops an insatiable hunger that spreads through sexual contact. Grotesque, gory, thematically layered. 107 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #7 — [Triggered](https://dopebox.to/search/triggered%202020) (2020)
-- **Vibe:** Death game / survival
-- **Synopsis:** Nine friends wake up in the woods with suicide bombs strapped to their chests — varying countdown timers. Kill someone, steal their time. Fast-paced, gory, well-edited. South African, English. 93 min.
+### #9 — [Daniel Isn't Real](https://dopebox.to/search/daniel%20isnt%20real) (2019)
+- **Vibe:** Psychological horror / body horror / sexual violence
+- **Synopsis:** College student's imaginary friend returns — but he's a manipulative entity pushing toward sexual violence and Hellraiser-level body horror. Wild last act. 96 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #8 — [The Boy Behind the Door](https://dopebox.to/search/boy%20behind%20the%20door) (2020)
-- **Vibe:** Kidnapping / survival
-- **Synopsis:** Two boys kidnapped — one escapes his room and tries to save the other. 90 min of pure tension. "Grabs you and doesn't let go." Shudder. Fantastic Fest premiere.
+### #10 — [Swallowed](https://dopebox.to/search/swallowed) (2022)
+- **Vibe:** Body horror / captivity / sexual undertones
+- **Synopsis:** Two friends' last night together — drug smuggling goes wrong with live bugs inside humans. Mark Patton (Elm Street 2) plays the psycho. Progressively unbearable. 96 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #9 — [Swallowed](https://dopebox.to/search/swallowed) (2022)
-- **Vibe:** Body horror / captivity
-- **Synopsis:** Two friends' last night together — drug smuggling goes wrong with live bugs inside humans. Mark Patton (Elm Street 2) plays the psycho. Gets progressively more unbearable. 96 min.
+### #11 — [Julia X](https://dopebox.to/search/julia%20x) (2011)
+- **Vibe:** Serial killer / sexual cat-and-mouse
+- **Synopsis:** Online date turns into abduction — but the victim fights back harder than expected. Sexual tension, torture, power reversals. Kevin Sorbo stars. Nasty. 92 min.
 - **Demented factor:** ████████░░ 8/10
 
-### #10 — [The Aggression Scale](https://dopebox.to/search/aggression%20scale) (2012)
-- **Vibe:** Home invasion / kid vs hitmen
-- **Synopsis:** Mob hitmen invade a family home. The son is a disturbed kid who fights back with lethal traps. "Home Alone as ultra-violent home invasion." Edgy, fast, memorable B-movie. 85 min.
-- **Demented factor:** ███████░░░ 7/10
+### #12 — [Captivity](https://dopebox.to/search/captivity%202007) (2007)
+- **Vibe:** Torture / captivity / sexual psychological games
+- **Synopsis:** Top model drugged and imprisoned in a basement. Forced to endure escalating psychological and physical torture. Elisha Cuthbert. Roland Joffé directed. Sexual mind games + gore. 85 min.
+- **Demented factor:** ████████░░ 8/10
 
-### #11 — [10x10](https://dopebox.to/search/10x10) (2018)
-- **Vibe:** Captivity / psychological
-- **Synopsis:** Man kidnaps a woman and locks her in a soundproof 10x10 room. Then the power dynamic flips. Luke Evans, Kelly Reilly. Tight 88 min. Not a moment wasted.
-- **Demented factor:** ███████░░░ 7/10
+### #13 — [Avenged](https://dopebox.to/search/avenged%202013) (2013)
+- **Vibe:** Rape-revenge / supernatural vengeance
+- **Synopsis:** Deaf woman attacked by rednecks, left for dead. Resurrected by a Native American spirit, goes on a brutal killing spree. Fast, gory, extreme kills. 95 min.
+- **Demented factor:** ████████░░ 8/10
 
-### #12 — [Trespassers](https://dopebox.to/search/trespassers%202018) (2018)
-- **Vibe:** Home invasion / vacation horror
-- **Synopsis:** Two couples at an Airbnb desert rental. A stranger knocks on the door. Everything escalates into brutal violence. Fast-moving, well-edited. 88 min.
-- **Demented factor:** ███████░░░ 7/10
+### #14 — [An American Crime](https://dopebox.to/search/an%20american%20crime) (2007)
+- **Vibe:** True crime / captivity / torture
+- **Synopsis:** Based on the Sylvia Likens case. Teenage girl left with a caretaker who orchestrates her prolonged torture with neighborhood kids. Ellen Page, Catherine Keener. Devastating. High production. 98 min.
+- **Demented factor:** █████████░ 9/10
 
-### #13 — [Midnighters](https://dopebox.to/search/midnighters) (2017)
-- **Vibe:** Crime thriller / escalating nightmare
-- **Synopsis:** Couple hits someone driving home on New Year's Eve. Cover-up spirals into murder, blackmail, and betrayal. Brisk, eventful, keeps throwing twists. English. 94 min.
-- **Demented factor:** ███████░░░ 7/10
-
-### #14 — [The Owners](https://dopebox.to/search/the%20owners%202020) (2020)
-- **Vibe:** Home invasion reversed
-- **Synopsis:** Three guys break into an elderly couple's house to rob their safe. The old couple turns out to be far more dangerous. Maisie Williams stars. Table-turning violence. 92 min.
-- **Demented factor:** ███████░░░ 7/10
-
-### #15 — [Random Acts of Violence](https://dopebox.to/search/random%20acts%20of%20violence) (2019)
-- **Vibe:** Meta-slasher / art-imitates-life
-- **Synopsis:** Comic book creator on a road trip discovers a real killer is recreating his fictional murders. Jay Baruchel directed. Brutal, gnarly, 81 min. Fast when it's moving but some stop-start pacing.
+### #15 — [Sorority Row](https://dopebox.to/search/sorority%20row) (2009)
+- **Vibe:** Slasher / sexy horror
+- **Synopsis:** Sorority prank goes wrong, someone dies, they cover it up. Killer starts picking them off. Gory kills, sexual tension, fast-paced. Polished studio horror. 101 min.
 - **Demented factor:** ███████░░░ 7/10
 
 
